@@ -1,4 +1,9 @@
-## Hi there 👋
+![gif 2](https://github.com/user-attachments/assets![gif 2](https://github.com/user-attachments/assets/e9aaef70-9270-41cd-a35d-3eb9f71012ec)
+/a4e3590b-3c2b-4481-a328-a5e6527873cd)
+⋆｡ ﾟ ☁︎｡⋆｡ ﾟ ☾ ﾟ ｡⋆
+
+## About me!;
+
 
 <!--
 **cola-addict/cola-addict** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
