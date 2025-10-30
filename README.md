@@ -49,6 +49,8 @@
 ➥ (phew~) Well , with all that said , I think I’ve covered most of the points / opinions (so far?) , 
 This post may be updated later in the future , I’m not quite sure yet , but that’s all , thank you all! (^3^) <3 ˗ˏˋ✩ˎˊ˗
 
+## ‣ Please star my repository, I’m striving for getting the achievement!! ⭐ ˗ˏˋ✩ˎˊ˗
+
 ⋆｡ ﾟ ☁︎｡⋆｡ ﾟ ☾ ﾟ ｡⋆
 
 ╭────────────────────── · · ୨୧ · · ──────────────────────╮
